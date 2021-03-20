@@ -15,3 +15,4 @@ In this step we are going to.
 
 Trilogy Education Services © 2019. All Rights Reserved.
 
+![image](https://user-images.githubusercontent.com/66819157/111854329-e66c3a80-88db-11eb-858c-02ff10f6ab4b.png)
